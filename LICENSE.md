@@ -1,4 +1,4 @@
-
+Experience sol's rng like never before with new Scripts for sol's rng, the #1 Script. Includes auto-farm and god mode for unbeatable performance.
 
 
 
